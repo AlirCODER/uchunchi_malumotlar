@@ -1,0 +1,1 @@
+# uchunchi_malumotlar
